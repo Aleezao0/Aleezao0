@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Aleezao0 
-- 👀 I’m interested in gaming, music, coding and travelling 
-- 🌱 I’m currently learning how to code, how to play instruments, how to enjoy life and be mrore productive and better with my mental health.
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in death
+- 🌱 I’m currently learning how to code, how to play instruments and generally just how to bear existence.
 - 📫 How to reach me, discord: Aleeza#6692 // snapchat: lizziexx112
 
 <!---
