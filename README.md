@@ -1,7 +1,6 @@
-- 👋 Hi, I’m @Aleezao0 
-- 👀 I’m interested in death
-- 🌱 I’m currently learning how to code, how to play instruments and generally just how to bear existence.
-- 📫 How to reach me, discord: Aleeza#6692 // snapchat: lizziexx112
+- 👋 Hi, I’m @Aleezurd
+- 👀 I’m interested in everything; i will eventually return to coding but i have exams to do as of now :)
+- 📫 How to reach me, discord: 
 
 <!---
 Aleezao0/Aleezao0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
